@@ -1,0 +1,1 @@
+Falta Arreglar la 1ra foto, del titulo principal. y Arreglar el logo en la parte inferior del site En el What we do.
